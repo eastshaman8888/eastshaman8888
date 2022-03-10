@@ -1,2 +1,2 @@
-- 👋 Hi, I’m East Shaman
+- 👋 Hi, I’m Jon, the East Shaman
 - 👀 I’m interested in crypto
